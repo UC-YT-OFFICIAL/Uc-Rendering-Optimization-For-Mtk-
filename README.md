@@ -71,7 +71,7 @@ UCYTOFFICIAL
 
 📢 Support & Download 
 
-Telegram: https://t.me/+zv-KL81FuLc1ZmRl
+Telegram: [https://t.me/+zv-KL81FuLc1ZmRl](https://t.me/+ypDU6ivVFmk0Njk1)
 
 ---
 
